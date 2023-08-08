@@ -1,0 +1,1 @@
+If I come across someone with mental health issues, then I would tell them that I could listen to them and help them.
